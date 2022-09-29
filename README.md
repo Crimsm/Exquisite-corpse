@@ -11,3 +11,5 @@ J'en ai marre de git.
 Troisième phrase. signé Andreas
 
 Après cette page de publicité juste avant le dévoilement de qui se cache derrière cette chose qui pourrait effrayer n'importe qui, nous revoila ! Cette chose continuait d'avancer et ne s'arretait pas, tout comme le petit garçon qui continuait d'avancer et même de courir. Malheuresement il trébuchat et la chose continua d'avancer, le garçon avait tellement peur qu'il ferma les yeux.
+
+L'enfant frissonne couvert de boue la peur l'empeche de bouger les pas sont si proche une voix dans une langue inconnu etait à coté de lui impossible pour lui de regarde quand tout à coup il sentit deux pression dans son cou et il le commence a se vider son sang et ses forces l'abandonna jusqu'a ce que l'homme le porta dans un sac.
